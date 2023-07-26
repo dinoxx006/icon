@@ -1,2 +1,2 @@
 # icon
-i am also ready
+i am always ready
